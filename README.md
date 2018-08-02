@@ -2,10 +2,5 @@
 Just another repository
 
 Hy guys 
-Are you doing training?
-
-Yes offcourse.
-Why not???
-
-
-no I am just asking.
+I am Achal Porwal from Ujjain, Madhya Pradesh.
+I have the capacity to turn any vision into reality.
